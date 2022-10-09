@@ -1,1 +1,1 @@
-# my first 100 proggrams
+# my first 100 programs
